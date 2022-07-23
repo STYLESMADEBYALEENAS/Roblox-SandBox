@@ -14,5 +14,3 @@
 - And your done!
 - Go to your roblox avatar
 - And pick anything you want on
-
-# Pictures on how to
